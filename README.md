@@ -40,7 +40,7 @@ Check out my [repositories](https://github.com/Manish-1kumar?tab=repositories) f
 ### 🤝 Connect With Me
 
 - **GitHub:** [Manish-1kumar](https://github.com/Manish-1kumar)
-- **LinkedIn:** Add your LinkedIn profile URL here
+- **LinkedIn:** [Manish Kumar](https://www.linkedin.com/in/manish-kumar-3b954a23a/)
 
 ---
 
